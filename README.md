@@ -10,10 +10,10 @@ https://anilife.app/
 https://www.linkkf.net/
 
 ## TV/드라마
-https://tvwiki4.net/
+https://티비위키접속.com/
 
 ## 웹툰
 https://newtoki469.com/
 
 ## 일본만화
-https://manatoki469.net/
+https://manatoki.click/마나토끼-주소-접속하기
